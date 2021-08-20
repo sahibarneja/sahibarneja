@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Good Projects 
 - 📫 How to reach me 
 -                    Mail: singhsahib1403@gmail.com/connect 
--                    Linkedin: https://www.linkedin.com/in/sahibpreet-singh-9588271a9/
+-                    Linkedin: https://www.linkedin.com/in/sahibpreet-singh-1403/
 - ** I am always ready and available for New Projects. Please Connect with me and Wait for Atleast a day.
 
 <!---

@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sahibpreet
-- 👀 I’m interested in Machine Learning and Cloud Computing
+- 👀 I’m interested in Salesforce Development and Architecture
 - 🌱 I’m currently learning Deep Learning
 - 💞️ I’m looking to collaborate on Good Projects 
 - 📫 How to reach me 
